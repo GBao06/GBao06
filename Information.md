@@ -1,6 +1,9 @@
 👋 Xin chào, tôi là @GBao06
+
 🌱 Hiện tại tôi đang học tại Trường Đại học Khoa Học - Đại học Huế
+
 📫 bunduong12@gmail.com 
+
 ⚡ 0766554336
 
 <!---
